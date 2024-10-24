@@ -2,7 +2,7 @@
 
 ## U' can see in [here](https://github.com/SGCifuentes?tab=repositories) some of my web projects and exercises
 
-## Wy [website](https://www.sgcifuentes.com.co)
+## My [website](https://www.sgcifuentes.com.co)
 
 ### If U' wanna reach me
  * [my email 📩](mailto:sebastiangc19.01@gmail.com?subject=Hello%20Sebastian!) 
